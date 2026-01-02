@@ -13,7 +13,7 @@
   <tr>
     <th>
       $\color{blue}{\textsf{Please ask before starting to cuddle or hiding behind me!}}$ <br>
-      $\color{blue}{\textsf{When I'm on Ponytown, I'm usualy with friends, and I}}$ <br>
+      $\color{blue}{\textsf{When I'm on Ponytown, I'm usually with friends, and I}}$ <br>
       $\color{blue}{\textsf{don't like random people getting in my space when I'm hanging}}$ <br>
       $\color{blue}{\textsf{out with my friends!}}$ <br>
       <br>
