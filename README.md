@@ -4,9 +4,11 @@
 
   </br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=arial+black&duration=1&pause=1000&color=1B5FDE&center=true&repeat=false&width=435&lines=ZANE+or+ARCTURUS!" alt="Typing SVG" /></a><br>
-<img width="40" height="30" alt="64471025_wiN" src="https://github.com/user-attachments/assets/e306d940-7b26-41f5-896e-caa28644f709"/>
-<img width="40" height="30" alt="64471029_zre" src="https://github.com/user-attachments/assets/04b2cf49-3418-4a8b-aa8e-a73f9dc74a02" />
-<img width="40" height="30" alt="66080899_08iFkBb775VC0f0" src="https://github.com/user-attachments/assets/214c7424-812f-4874-a799-54122af5ea8c" />
+<img width="40" height="30" alt="64471025_wiN" src="https://i.postimg.cc/FR8QGt29/64545421_i6SAx_WKJGs_F3Wq8.png"/>
+<img width="40" height="30" alt="64471029_zre" src="https://i.postimg.cc/bJWjLXKP/64506058_YQGp_Svsyo_VUa_Osc.png" />
+<img width="40" height="30" alt="66080899_08iFkBb775VC0f0" src="https://i.postimg.cc/ZR2hjk14/75007651_Oex_RBWsskt_S6y_Au.png" />
+<img width="40" height="30" alt="64471029_zre" src="https://i.postimg.cc/859Vw8qT/67209095_IKsop8r_SZTD85r_Y.png" />
+<img width="30" height="25" alt="66080899_08iFkBb775VC0f0" src="https://i.postimg.cc/Px9kKGBh/87754090_2d5BBXKqm_FEHy8t.png" />
 <table>
   <tr>
     <th>
