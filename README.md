@@ -59,7 +59,7 @@ $\color{blue}{\textsf{'systems', supportive of 'cringe culture, radqueer}}$ <br>
   <tr>
     <th>
       $\color{blue}{\textsf{if you're interested in any of my interests, BATTENNA SHIPPERS!!!!!}}$ <br>
-      $\color{blue}{\textsf{OR miketenna shippers... p pelase, floorphone shippers, fictionkin/otherkin,}}$ <br>
+      $\color{blue}{\textsf{OR miketenna shippers... p pelase, floorphone shippers too....}}$ <br>
       $\color{blue}{\textsf{literally anyone honestly just dont be a weirdo!! i love talking to people!!!}}$ <br>
 </th>
 </tr>
