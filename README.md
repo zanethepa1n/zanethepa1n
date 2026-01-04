@@ -47,7 +47,8 @@
     <th>
 $\color{blue}{\textsf{basic dni, proship, shedtwt, "cringe culture", nsfw,}}$ <br>
 $\color{blue}{\textsf{transmeds, anti-xenogender, younger than 13, endogenic}}$ <br>
-$\color{blue}{\textsf{'systems', supportive of 'cringe culture, radqueer}}$ <br>
+$\color{blue}{\textsf{'systems', supportive of 'cringe culture', radqueer}}$ <br>
+$\color{blue}{\textsf{hazbin/helluva fans are on THIN!! ICE!!!}}$ <br>
 </th>
 </tr>
 </table>
